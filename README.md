@@ -1,2 +1,2 @@
 # Meeting-Minutes
-K-State ACM Officer Meeting Minutes
+K-State ACM Officer Meeting Agendas and Minutes
