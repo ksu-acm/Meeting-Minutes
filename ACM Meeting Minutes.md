@@ -8,13 +8,17 @@
 
 #### Attendance
 ##### Excused Absences:
+ * Officer
 ##### Unexcused Absences:
+ * Junior Officer
 
 #### Announcements
 
 #### Open Period
 
 #### Business Item
+##### Business Item 1
+* Talking Points
 
 #### Adjournment
 

@@ -5,41 +5,32 @@
 
 #### CALL TO ORDER
 President Todd called the meeting to order at 5:15 p.m.
+
 #### ATTENDANCE
 #### Excused Absences:
-Murrell, Dokos, Doll
+* Officer Dokos
+* Officer Doll
+* Junior Officer Murrell
 #### Unexcused Absences:
-#### ANNOUNCEMENTS
+
+#### Announcements
 * Officer Beashore Announced the Top 5 Potential Open House Topics
 	* Let him know if you have any input on them.
 
-### Event Competition:
-#### Gourmet Ramen Cooking Competition
+#### Order of Business
+##### Event Competition:
+###### Gourmet Ramen Cooking Competition
 * Contestants are given ingredients and compete against each other to cook the best ramen
 * Prize: TBD
 
-#### Halloween Party
+###### Halloween Party
 * Tuesday October 31st
 * Costume contest, Activities (JackBox games, Golf with Bananas, Trivia/Brain Teaser)
 * Prize: Pie someone in the face
 
-
-#### ADJOURNMENT
+#### Adjournment
 Officer Todd moved to adjourn until Tuesday, October 21 at 6:00pm in DUE 1116. Motion passes. Adjourned at 5:50 p.m.
-#### ACTION ITEMS
-* President Todd
-* Vice President Eisenbarger
-* Secretary Canfield
-* Treasurer Carter
+
+#### Action Items
 * Outreach Chair Taylor
 	* Get attendance sheet from Tailgate to William ASAP
-* Event Chair Dokos
-* Industry Liaison Henderson
-* Open House Co-Chair Boley
-* Open House Co-Chair Doll
-* Senior Chair Beashore
-* Junior Officer Siebert
-* Junior Officer DeWeese
-* Junior Officer Toy
-* Junior Officer Malhi
-* Junior Officer Murrell
