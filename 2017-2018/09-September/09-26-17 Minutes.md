@@ -28,6 +28,26 @@ Officer Todd moved to approve the Spring 2018 Back to School Bash for January 23
 #### Spring Programming Contest
 Officer Todd moved to approve the Spring 2018 Programming Contest for February 24, 2018. Seconded. Approved.
 
+#### Event Competition Teams
+##### Team 1
+* Haley
+* Jacob
+* Erin
+* Alex
+* Kevin
+* William
+* Clay
+* Jarod
+
+##### Team 2
+* Cody
+* Zach
+* Simran
+* Dayton
+* Kyle
+* Michael
+* Mary Pat
+
 #### Adjournment
 Officer Carter moved to adjourn until Tuesday, October 3 at 5:15pm in the Computer Science Conference Room. Motion passes. Adjourned at 5:52pm.
 
