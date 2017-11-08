@@ -13,7 +13,7 @@
 #### Open Period
 
 #### Order of Business
-##### Fridge Duty
+#### Fridge Duty
 Officer Dokos
 
 #### ACM Industry Series: Google
@@ -35,5 +35,5 @@ December 1, 2017 @ 7pm in DUE 1118
 * Officer Dokos will need to contact eSports about co-hosting.
 * Officer Dokos will need to discuss with Officer Henderson if Softek is providing food.
 
-##### Event Competition
+#### Event Competition
 * Schedule Gourmet Ramen Cooking Competition
