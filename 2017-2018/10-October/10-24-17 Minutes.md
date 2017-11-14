@@ -1,6 +1,7 @@
-# KANSAS STATE UNIVERSITY
-# ASSOCIATION FOR COMPUTING MACHINERY
-## OFFICER MEETING MINUTES: OCTOBER 24, 2017
+# Kansas State University
+# Student Chapter of the Association for Computing Machinery
+### Officer Meeting Minutes
+### October 24, 2017
 
 ### CALL TO ORDER
 President Todd called the meeting to order at 6:00 p.m.
