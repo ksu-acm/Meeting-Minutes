@@ -7,7 +7,6 @@ President Todd called the meeting to order at 5:15 p.m.
 ### ATTENDANCE
 ### Excused Absences:
 * Junior Officer Murrell
-* Junior Officer Siebert
 * Senior Chair Beashore
 * Event Chair Dokos
 
