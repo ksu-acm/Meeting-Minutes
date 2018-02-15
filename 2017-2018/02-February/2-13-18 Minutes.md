@@ -27,7 +27,7 @@ HAPPY GALENTINE'S DAY!!!!!!
 
 
 ### ADJOURNMENT
-Officer Todd moved to adjourn until Tuesday, February 13 at 6:00pm in DUE 1116. Motion passes. Adjourned at 5:45p.m.
+Officer Todd moved to adjourn until Tuesday, February 20 at 6:00pm in DUE 1116. Motion passes. Adjourned at 6:45p.m.
 
 ### ACTION ITEMS
 * President Todd
