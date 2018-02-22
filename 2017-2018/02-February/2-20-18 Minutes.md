@@ -15,6 +15,7 @@ President Todd called the meeting to order at 6:00 p.m.
 * 1st: https://www.amazon.com/Bose-QuietComfort-Wireless-Headphones-Cancelling/dp/B0756CYWWD
 * 2nd: https://www.amazon.com/Nintendo-Entertainment-System-NES-Classic/dp/B01IFJBQ1E
 * 3rd: https://www.amazon.com/LEGO-Ideas-Apollo-Saturn-21309/dp/B01MUANC80
+
 **Open House Co-Chair Boley**
 * Abstracts & Posters due 3/16
 
