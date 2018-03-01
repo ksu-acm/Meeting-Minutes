@@ -15,10 +15,10 @@ President Todd called the meeting to order at 6:00 p.m.
 * Abstracts & Posters due 3/16
 
 ### UPCOMING EVENTS
+* 3/2 - LAN Party
 * 3/6 @ 6 in 1116 - Industry Series: Homebase
 * 3/8 @ 5:15 in 1114 - Industry Series: Bestol
 * Every Wednesday: Open House Meetings (Required)
-* 3/2 - LAN Party
 * 3/13 - ACM Officer Elections: Cox Bros
 * 5/1 - End of the Year BBQ
 
