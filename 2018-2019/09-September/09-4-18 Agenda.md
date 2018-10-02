@@ -42,9 +42,9 @@
 
 
 #### Adjournment
-* President Canfield moved to adjourn until 5:15pm at 6:00pm in DUE 1116.
+* President Canfield moved to adjourn until next 9-11-2018 5:15pm in DUE 1116.
 * Motion passes. 
-* Adjourned at 6:50p.m.
+* Adjourned at 6:00p.m.
 
 #### Action Items
 * President Canfield
